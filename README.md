@@ -1,1 +1,1 @@
-yndex.practicum
+procrastinator
